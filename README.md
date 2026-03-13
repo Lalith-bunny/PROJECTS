@@ -1,3 +1,0 @@
-# PROJECTS
-Kindly check my work and projects...
-
